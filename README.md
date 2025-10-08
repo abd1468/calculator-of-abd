@@ -1,0 +1,1 @@
+so this is basically my first thing i made through scractch by coding on vs code and i took a tutorial of it and practiced and learned! three languages components its really fun to hook up for a while and create some cool thing
